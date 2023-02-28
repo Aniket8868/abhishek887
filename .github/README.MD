@@ -4,7 +4,7 @@
 </h2>
 
 FULL KANG OF EXON ROBOT
-ALL CREDITS TO [𝐀𝖻𝗂𝗌𝗁𝗇𝗈𝗂](https://github.com/Abishnoi69)
+ALL CREDITS TO [𝐀𝖻𝗂𝗌𝗁𝗇𝗈𝗂](https://github.com/Aniket8868/abhishek887)
 AND TEAM
 
 THIS IS KANGED AND IMPORTED FOR YOUTUBE VIDEO
